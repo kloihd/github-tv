@@ -1,7 +1,9 @@
-Sondra Blust video viral: desata debate en redes sociales
-Sondra Blust se vuelve viral tras la difusión de un video en redes, generando debate sobre privacidad y 
+La estrella de Tiktok de nombre AlexusxSkyy se viralizo en los últimos días. tras perder cerca de 1.5 millones de seguidores en la plataforma de videos, luego de ser hackeada y que se filtraran fotos y videos íntimos.
 
-Sondra Blust en el centro de la polémica tras la viralización de su video. - Foto: Cortesía
-Sondra Blust, mejor conocida en internet como ‘Gringa Sandra’, ha logrado destacar como influencer entre la comunidad latina, donde su contenido ha captado gran atención.
+Lee también: Sondra Blust: ¿Filtraron video íntimo de la influencer?
+Fue en la plataforma de X donde informo del suceso, en el cual se relata que tras el suceso donde de la filtración de contenido íntimo, la influencer habría perdido sus millones de seguidores.
 
-Con fecha de nacimiento el 6 de abril del 2000, actualmente tiene 23 años y está próxima a celebrar su cumpleaños número 24.
+Ella es una de las influencers más populares de la plataforma de videos, principalmente por su belleza y sus atrevidas sesiones fotográficas, además de sus videos que a mas de un le han robado suspiros.
+
+Por si te lo perdiste: AlexusxSkyy: Filtran video sexual de la influencer
+Te presentamos sus fotos más sexys de la estrella de TikTok
